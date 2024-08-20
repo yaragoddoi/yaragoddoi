@@ -11,4 +11,6 @@ Here are some ideas to get you started:
 - 😄 Pronouns: ...
 - ⚡ Fun fact: ...
 -->1. gosto de sair
-2.
+2. mexer no celular
+3. dormir
+4. comer
